@@ -80,7 +80,6 @@ Sabemos que ser primeros suele ser una tarea díficil, pero ser segundos es toda
 * [Colombia, el tercer país de América Latina con más direcciones IPv6](http://www.siliconweek.com/cloud/colombia-el-tercer-pais-de-america-latina-con-mas-direcciones-ipv6-47736)
 * [Colombia es el tercer país que más jugadores ha trasferido](http://gol.caracoltv.com/futbol-colombiano/colombianos-el-mundo/galeria-327680-colombia-el-tercer-pais-mas-jugadores-ha-transferido-2015)
 * [Colombia, tercer país más espiado por EE.UU., según Snowden](https://noticias.terra.com.co/colombia/colombia-tercer-pais-mas-espiado-por-eeuu-segun-snowden,e6d9162e1c3cf310VgnVCM5000009ccceb0aRCRD.html)
-* [Colombia, tercer país más espiado por EE.UU., según Snowden](https://noticias.terra.com.co/colombia/colombia-tercer-pais-mas-espiado-por-eeuu-segun-snowden,e6d9162e1c3cf310VgnVCM5000009ccceb0aRCRD.html)
 * [Colombia, tercer país de la región con más días de licencia para maternidad](http://www.larepublica.co/colombia-tercer-pa%C3%ADs-de-la-regi%C3%B3n-con-m%C3%A1s-d%C3%ADas-de-licencia-para-maternidad_291876)
 * [Colombia, el tercer país comprador entradas a Brasil-2014](http://panamericanworld.com/es/articulo/colombia-tercer-pais-comprador-entradas-brasil-2014)
 * [Colombia, tercer país con mayor expansión económica en el continente americano](http://www.legiscomex.com/BancoConocimiento/C/colombia-mayor-expansion-economica-continente-americano/colombia-mayor-expansion-economica-continente-americano.asp?CodSeccion=)
