@@ -30,7 +30,6 @@ Sabemos que ser primeros suele ser una tarea díficil, pero ser segundos es toda
 * [Falcao García, tercer mejor goleador en Francia y uno de los mejores en Europa](http://deportivisima.com.co/index.php/2017/01/04/falcao-gracia-tercer-mejor-goleador-en-francia-y-uno-de-los-mejores-en-europa/)
 * [Colombia tercero en teletrabajo en la región](http://prevencionar.com.co/2015/07/09/colombia-tercero-en-teletrabajo-en-la-region/)
 * [COLOMBIA, TERCERO EN USUARIOS DE SMARTPHONES EN LATAM](https://infomercadeo.com/2015/01/07/colombia-tercero-en-usuarios-de-smartphones-en-latam/)
-* [COLOMBIA, TERCERO EN USUARIOS DE SMARTPHONES EN LATAM](https://infomercadeo.com/2015/01/07/colombia-tercero-en-usuarios-de-smartphones-en-latam/)
 * [Colombia, tercero en el Grand Prix de Fútsal de Brasil](http://www.tusemanario.com/colombia-tercero-en-el-grand-prix-de-futsal-de-brasil/)
 * [¿Sabías que Colombia es el tercer productor de películas porno después de Brasil y Argentina en Latinoamérica?](https://espanol.answers.yahoo.com/question/index?qid=20061105164054AAQbRZF)
 * [El colombiano Oscar Julián Ruiz el tercer mejor árbitro del siglo XXI según la IFFHS](http://www.antena2.com.co/noticias/palabras-mayores/el-colombiano-oscar-julian-ruiz-el-tercer-me)
@@ -95,3 +94,4 @@ Sabemos que ser primeros suele ser una tarea díficil, pero ser segundos es toda
 * [COLOMBIA TERMINÓ TERCERO EN EL MUNDIAL DE MARATÓN PARALÍMPICA](http://www.colombiasports.net/atletismo/cristian-torres-termino-tercero-en-el-mundial-de-maraton-paralimpica)
 * [Colombia, tercero del mundo en Hockey Subacuatico](http://ahosub.webnode.es/products/colombia-tercero-del-mundo/)
 * [La Selección Colombia Sub-18 venció a Tijuana y se quedó con el tercer lugar de la Copa Chivas Internacional](http://www.goal.com/es-co/news/4583/selecci%C3%B3n-colombia/2014/02/05/4598284/colombia-tercero-en-copa-chivas)
+* [Colombia tercero en ranking mundial de Judo](http://www.acordantioquia.com/juan-pablo-hernandez-tercero-ranking-mundial-judo/)
